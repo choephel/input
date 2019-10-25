@@ -1,0 +1,2 @@
+# input
+easy for use
